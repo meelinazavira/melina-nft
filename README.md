@@ -1,4 +1,4 @@
-# melina nft profiles pictures
+# melina nft profiles picture
 - 0xmelina (1).jpg
 - 0xmelina (2).jpg
 - 0xmelina (3).jpg
